@@ -1,1 +1,0 @@
-# gitting_dojo
